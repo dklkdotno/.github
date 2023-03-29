@@ -1,1 +1,1 @@
-## DMJS.no 👋
+## www.dmjs.no 👋
