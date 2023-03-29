@@ -1,1 +1,1 @@
-## www.dmjs.no 👋
+## dmjs.no & dmjsblack.github.io 👋
